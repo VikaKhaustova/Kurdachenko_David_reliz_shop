@@ -1,0 +1,1 @@
+# Kurdachenko_David_reliz_shop
